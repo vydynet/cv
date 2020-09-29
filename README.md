@@ -7,3 +7,13 @@ Viber, WhatsApp +380679815375
 
 Best regards, Vadym!
 ---
+
+ Website improvement services - error correction, SPAM protection, ACCELERATION of loading, CLEANING FROM VIRUSES, parsers, API, Bot. I connect any payment systems to any site system. PHP, MySQL, JavaScript. Refinement of any solutions. Any difficulty!
+Skype: vydynet
+Site: https://vydy.net
+Email: dev@vydy.net
+Telegram: https://t.me/vydynet
+Viber, WhatsApp +380679815375
+
+Best regards, Vadym!
+---
